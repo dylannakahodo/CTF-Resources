@@ -1,0 +1,1 @@
+All 7-zip files passwords are: flare
